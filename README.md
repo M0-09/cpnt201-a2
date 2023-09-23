@@ -1,3 +1,3 @@
 My Fav Sport Is Basketball
 
-Basketball is a sport played in many countries.
+A Canadian who moved to the US invented basketball.
