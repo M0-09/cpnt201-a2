@@ -9,3 +9,5 @@ Basketball is also a very good sport for physical exercise.
 I try and play basketball whenever I can find some time to kill.
 
 You get points by scoring a basket; one get different number of points after shooting from different areas of the court.
+
+Basketball is a very fun sport.
